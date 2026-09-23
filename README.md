@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://c.tenor.com/JAOvXrxxrzEAAAAC/tenor.gif" width="500">
+<img src="https://c.tenor.com/1v-u8HO09tEAAAAd/tenor.gif" width="500">
 
 <br>
 
@@ -11,7 +11,7 @@
 ♡ thanks for visiting! ♡
 
 </div>
-##
+︶·︶·︶·︶·︶·︶·︶·︶·︶·︶·︶·︶
 
 <!--
 **littinyas/littinyas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
