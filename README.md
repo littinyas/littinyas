@@ -10,7 +10,7 @@
 
 ♡ thanks for visiting! ♡
 
-</div>
+<div align="center">
 ︶·︶·︶·︶·︶·︶·︶·︶·︶·︶·︶·︶
 
 <!--
