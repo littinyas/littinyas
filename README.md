@@ -8,7 +8,7 @@
 
 <br><br>
 
-♡ thanks for visiting! ♡
+ thanks for visiting! ♡
 
 <div align="center">
 . . . . . ◟੭
