@@ -11,7 +11,7 @@
 ♡ thanks for visiting! ♡
 
 <div align="center">
-︶·︶·︶·︶·︶·︶·︶·︶·︶·︶·︶·︶
+. . . . . ◟੭
 
 <!--
 **littinyas/littinyas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
